@@ -1,2 +1,3 @@
-
-![](https://i.pinimg.com/1200x/d2/ba/3a/d2ba3ae6f6a78722bc2d0772c47a46fa.jpg)
+<div align="center">
+  <img src="https://static.wikia.nocookie.net/cookierunkingdom/images/a/ad/Silent_salt_head.png/revision/latest?cb=20250924020906">
+</div>
